@@ -1,5 +1,5 @@
-### É nóis 
-:d20-1:
+### É nóis ![d20-1](https://github.com/elielrpg/elielrpg/assets/98996708/e1a658de-eb16-4da5-a0d1-8e24df3f9dc0)
+
 
 ![giphy](https://github.com/elielrpg/elielrpg/assets/98996708/e8428eec-732c-4184-8c58-cd30410fc0d3)
 
