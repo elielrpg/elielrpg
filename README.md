@@ -1,4 +1,5 @@
-### Hi there 👋
+### É nóis 
+:d20-1:
 
 ![giphy](https://github.com/elielrpg/elielrpg/assets/98996708/e8428eec-732c-4184-8c58-cd30410fc0d3)
 
